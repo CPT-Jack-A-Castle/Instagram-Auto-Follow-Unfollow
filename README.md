@@ -7,9 +7,9 @@ Contact with me to get the Password of Zip file on :
   
  Email : erfan4lx@gmail.com
   
-Show full video on YouTube : In recording...
+Show full video on YouTube : https://youtu.be/yggMpWbBUx0
 
-Show demo video on Instagram : In recording...
+Show demo video on Instagram : https://github.com/erfan4lx/Instagram-Auto-Follow-Unfollow
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
