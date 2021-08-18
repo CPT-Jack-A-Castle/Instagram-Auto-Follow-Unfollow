@@ -9,7 +9,7 @@ Contact with me to get the Password of Zip file on :
   
 Show full video on YouTube : https://youtu.be/yggMpWbBUx0
 
-Show demo video on Instagram : https://github.com/erfan4lx/Instagram-Auto-Follow-Unfollow
+Show demo video on Instagram : https://www.instagram.com/p/CStxP61FtP_/
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
